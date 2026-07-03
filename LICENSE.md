@@ -1,4 +1,4 @@
-
+escape tsunami for brainrots Scripts secret is the best escape tsunami for brainrots Script, featuring anti-ban and auto-upgrade. Safe and powerful
 
 
 
